@@ -1,3 +1,5 @@
-# Learning new things daily
+# Learning new things daily :)
 
 Work in progress...
+
+Coming soon
